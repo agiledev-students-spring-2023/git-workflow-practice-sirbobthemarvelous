@@ -6,4 +6,4 @@ This article highlighted the one of the many unforeseen dangers in our modern li
 
 ### Forked Edit
 
-Indeed, @sirbobthemarvelous really gives an insightful though on this topic, which closely related to our life. We should all think about this and take actions to protect us call for further regulation.
+Indeed, @sirbobthemarvelous really gives an insightful though on this topic, which closely related to our life. We should all think about this and take actions to protect us and call for further regulation. --- Comment from *Xiyu Hao (xh2187)*
